@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sassilicious
-- 👀 I’m interested in 
+- 👀 I’m interested in HIRING
 - 🌱 I’m willing to learn sourcing process automation
 - 💞️ I’m looking to collaborate on challenging and fun recruiting assignments
 - 📫 How to reach me? @Sassilicious
